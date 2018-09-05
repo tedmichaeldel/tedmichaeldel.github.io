@@ -1,1 +1,0 @@
-# tedmichaeldel.github.io
